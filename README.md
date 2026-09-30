@@ -1,3 +1,3 @@
-# Waleed Khan Jadoon
+# 👋 Hi there
 
-I wish I could lie.
+I am Waleed Khan Jadoon. That's it.
